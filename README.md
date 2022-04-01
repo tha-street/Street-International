@@ -24,3 +24,6 @@ But come on nigga, hali *hey* *~there *muthafvka~* hehe.
 ``` understanding the process is proving rather difficult```
 * [x] hey 
 * [] hi
+![J cole](https://raw.githubusercontent.com/tha-street/Street-International/a-better-one/images/j%20cole.jpg)
+
+#### The peace kali wanted.
